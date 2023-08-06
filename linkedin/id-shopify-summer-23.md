@@ -37,3 +37,6 @@ Saya pernah membaca mengenai artikel tentang kecepatan waktu untuk membuka websi
 Beberapa hal yang saya kutip di atas dari Shopify Summer Update 23, saya rasa sangat membantu anda seorang pebisnis yang ingin menjual produk andalan anda secara online, menentukan anda dalam berinvestasi pada platform yang memenuhi kebutuhan anda tidak hanya saat ini tapi beberapa tahun mendatang, serta dari sisi teknologi dapat memudahkan skalabilitas penjualan produk anda.
 
 Jika anda tertarik membaca lebih detail dapat melihat link berikut [https://www.shopify.com/editions/summer2023](https://www.shopify.com/editions/summer2023)
+
+
+Reference : [Linkedin](https://www.linkedin.com/posts/kadek-wijaya_shopify-shopifydropshipping-onlinebusiness-activity-7093527688165933056-ZKK-?utm_source=share&utm_medium=member_desktop)

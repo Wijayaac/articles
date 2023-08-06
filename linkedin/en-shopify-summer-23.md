@@ -41,3 +41,5 @@ I imagine this aspect becomes even more critical when you have competitors. If t
 The above points highlighted from the Shopify Summer Update '23 are incredibly beneficial for a business owner like you, aiming to sell your flagship products online. It enables you to invest in a platform that meets your current needs and remains relevant for years to come. Moreover, from a technological standpoint, it facilitates the scalability of your product sales.
 
 If you're interested in the new Shopify updates, you can explore : https://www.shopify.com/editions/summer2023
+
+Reference : [Linkedin](https://www.linkedin.com/posts/kadek-wijaya_shopify-shopifydropshipping-onlinebusiness-activity-7093527688165933056-ZKK-?utm_source=share&utm_medium=member_desktop)
